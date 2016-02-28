@@ -19,7 +19,8 @@ Thanks for joining Impeccable IT Academy Community...
 
 All the best for your career and life...
 
-Dr B P Sharma
-Technical Evangelist
-Impeccable IT Academy
-+91 8800600025
+Dr B P Sharma | Technical Evangelist | Impeccable IT Academy | +91 8800600025
+
+Facebook: http://facebook.com/bpsharma.in | Twitter: http://twitter.com/drbpsharma
+
+
